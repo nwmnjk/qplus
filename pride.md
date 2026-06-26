@@ -1,3 +1,3 @@
-pride
-humble
+firm  
+humble  
 discipline
