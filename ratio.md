@@ -1,7 +1,7 @@
 you don't understand  
 I'm famous where  
 I come from  
-silent brag  
+loud brag  
 chin higher  
 chest fuller  
 than worth  
