@@ -13,7 +13,8 @@ the unfamiliar
 was always your face  
 
 the glare  
-doesn't haunt  
+doesn't haunt 
+
 it waits  
 you knew  
 you looked away  
