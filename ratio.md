@@ -1,5 +1,5 @@
 you don't understand  
-I'm famous where  
+whose famous where  
 I come from  
 loud brag  
 chin higher  
