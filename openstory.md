@@ -3,5 +3,6 @@ something without order
 async left open  
 there yet again another  
 
-the chingyness of it all  
-the brutalist tragedy over played
+the clingyness of it all  
+the brutalist tragedy  
+over played
