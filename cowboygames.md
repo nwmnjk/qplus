@@ -1,4 +1,6 @@
-the way California sometimes forgets  
+the way  
+California  
+sometimes forgets  
 to explain itself 
 
 not by address, not by argument —  
@@ -7,4 +9,6 @@ the kind money learns
 to make itself comfortable in 
 
 like a postage stamp  
-on a letter with no real destination 
+on a letter  
+with no  
+real sender 
