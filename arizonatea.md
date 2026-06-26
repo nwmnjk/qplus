@@ -11,5 +11,5 @@ afar between ashtrays
 
 antigravity means buoyant  
 levitation not hovering  
-the disc revolves no spin  
+the disc revolves, no spin  
 hard to taste the difference
