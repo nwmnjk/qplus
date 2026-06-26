@@ -1,6 +1,6 @@
 you don't understand  
 whose famous where  
-I come from  
+ui come from  
 loud brag  
 chin higher  
 chest fuller  
