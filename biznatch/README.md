@@ -1,0 +1,1 @@
+![required](biznatch/glory.png)
